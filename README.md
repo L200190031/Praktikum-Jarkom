@@ -1,3 +1,3 @@
 # Praktikum-Jarkom
 
-repo prak jarkom ngab
+repo prak jarkom beb :*
